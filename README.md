@@ -2,8 +2,6 @@ Hi there, I’m Clark Narvas. I am a nerdy 15 year old content creator creating 
 
 _______________
 
-______
-
 📝 Blogging: Since November 2019, I've blogged over on clarknarvas.com about DeGoogling, improving my life with better habits and getting into a better study routine time for my exams.
 
 🌹 Politics: I've built effective, proven digital campaigns that reach hundreds of people, help candidates stand out from the crowd and win elections (e.g. Cara McDade for SYL Under 19s Officer)
