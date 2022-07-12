@@ -1,4 +1,4 @@
-Hi there, I’m Clark Narvas. I am a nerdy 15 year old content creator creating wonderful and mad blogs/videos/podcasts about productivity, technology, studying and all things in between. 🌟
+Hi there, I’m Clark Narvas. I am a nerdy 17 year old content creator creating wonderful and mad blogs/videos/podcasts about productivity, technology, studying and all things in between. 🌟
 
 _______________
 
