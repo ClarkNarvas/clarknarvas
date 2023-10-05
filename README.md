@@ -1,6 +1,7 @@
-Hi there, I’m Clark Narvas. I am a nerdy 17 year old content creator creating wonderful and mad blogs/videos/podcasts about productivity, technology, studying and all things in between. 🌟
+**Hi there, I’m Clark Narvas.** I tell stories through content creation, front-end development and design.
 
 _______________
+**TRUSTED BY BRANDS AND PEOPLE YOU MAY KNOW: Labour and Co-Operative, Sheffield City Council, PAWLEAN**
 
 📝 Blogging: Since November 2019, I've blogged over on clarknarvas.com about DeGoogling, improving my life with better habits and getting into a better study routine time for my exams.
 
